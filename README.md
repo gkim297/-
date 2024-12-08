@@ -1,2 +1,2 @@
 # 군대야발
-![image](https://github.com/user-attachments/assets/a8a75b11-eee5-43bb-b303-f575546b986c)
+![image](https://github.com/user-attachments/assets/850b8a72-a63a-4aa0-bd83-45047d1faf47)
